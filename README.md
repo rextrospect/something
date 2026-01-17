@@ -1,2 +1,2 @@
-# something
-Idk
+# basically something
+* idk but longer i guess..
